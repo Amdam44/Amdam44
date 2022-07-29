@@ -3,4 +3,4 @@
 
 
 I'm Abdirahman Ahmad, Front-End developer from Hargeisa, Somaliland,     
-For more information find me:https://twitter.com/Amdam44
+For more information find me: twitter.com/Amdam44
